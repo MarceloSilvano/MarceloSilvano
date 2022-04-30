@@ -4,7 +4,7 @@
 - 💞️ Estou procurando colaborar em soluções para webdesigners
 - 📫 Se precisar me envie um e-mail: marcelocgsilvano@gmail.com ficarei feliz se puder ajudar :D 
 
-<---------------------------------------------------------------------------------------------------------------------------------------------------->
+<-------------------------------------------------------------------------------------------------------------------------------------------------->
 
 - 👋 Hi, I’m @MarceloSilvano
 - 👀 I’m interested in Web development
